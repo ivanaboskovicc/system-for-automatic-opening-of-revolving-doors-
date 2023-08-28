@@ -1,0 +1,1 @@
+# system-for-automatic-opening-of-revolving-doors-
